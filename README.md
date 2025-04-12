@@ -1,2 +1,5 @@
-# My-first-website-
-Remo Secondary School 
+# Welcome to My-first-website-
+# This Odunlami Israel 
+#From Remo Secondary School, Sagamu
+**Instructor**
+**KNT TECHNOLOGY**
